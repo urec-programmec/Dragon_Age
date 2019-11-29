@@ -6,7 +6,7 @@ Any can create a new Branch and create him own Solder of future World War!
 
 To be continued...
 To be reborned...
-To be a Dragon 
+To be a Dragon.
 
                                           ,   ,
                                             $,  $,     ,
