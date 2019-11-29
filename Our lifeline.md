@@ -1,11 +1,15 @@
 # Dragon_Age
 
 Is opensorce project about Reborning the Age of a Dragons.
+
 Any of branches is a new Type of Reborning's Dragons.
+
 Any can create a new Branch and create him own Solder of future World War! 
 
 To be continued...
+
 To be reborned...
+
 To be a Dragon.
 
                                           ,   ,
